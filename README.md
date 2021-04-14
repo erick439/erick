@@ -1,0 +1,2 @@
+# erick
+declaratele wey
